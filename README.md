@@ -1,4 +1,4 @@
-# 🇵🇸 S.M. Abdullah Abdulbadeeii – Trailblazing the Future  
+# 🇵🇸 S.M.Abdullah Abdulbadeeii – Trailblazing the Future  
 
 💡 **Visionary Entrepreneur | 🏗️ Civil Engineer | 🤖 AI Innovator | ❤️ Philanthropist**  
 
